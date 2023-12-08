@@ -1,1 +1,1 @@
-# Mobil-Sa-l-k-Uygulamas-
+# Mobil-Saglik-Uygulamasi
